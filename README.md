@@ -9,5 +9,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with: 
 - 💬 Ask me about: Technology
 - 📫 How to reach me: farhad.rezwan@gmail.com
-- 😄 Pronouns: HE/HIM
 - ⚡ Fun fact: 
